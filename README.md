@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @smartacephale
-- 👀 I’m interested in six hot loads
-- 🌱 I’m currently learning bondage
-- 💞️ I’m looking to collaborate on lash of spanking
-- 📫 How to reach me in purgatory
-- 😄 Pronouns: potato
-- ⚡ Fun fact: shovel
+six6️⃣hot🥵loads
 
 <!---
 smartacephale/smartacephale is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
